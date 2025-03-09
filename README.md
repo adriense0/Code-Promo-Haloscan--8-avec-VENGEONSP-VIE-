@@ -1,14 +1,14 @@
-# Code Promo Haloscan -8% avec VENGEONSP à VIE
+# Code Promo Haloscan -8% avec ADRIENB à VIE
 
 Salut à tous,
 
-Pour ceux qui cherchent une solution efficace pour booster leur SEO, voici une offre sympa : en utilisant le code VENGEONSP, vous obtenez 8% de réduction à vie sur tous les abonnements Haloscan !
+Pour ceux qui cherchent une solution efficace pour booster leur SEO, voici une offre sympa : en utilisant le code ADRIENB, vous obtenez 8% de réduction à vie sur tous les abonnements Haloscan !
 
 Haloscan est un outil performant conçu pour analyser et optimiser votre référencement naturel. Grâce à ses recommandations précises, il vous aide à améliorer votre visibilité en ligne tout en vous permettant de mieux gérer votre budget.
 
 🔹 Comment profiter de l’offre ?
 ✅ Rendez-vous sur le site Haloscan et choisissez l’abonnement qui vous convient.
-✅ Lors de votre inscription, entrez le code VENGEONSP dans l’espace prévu.
+✅ Lors de votre inscription, entrez le code ADRIENB dans l’espace prévu.
 ✅ Bénéficiez instantanément d’une réduction permanente de 8% sur votre abonnement.
 
 🚀 Pourquoi utiliser Haloscan avec ce code ?
